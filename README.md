@@ -7,8 +7,6 @@
 
 - 👨‍💻 All of my projects are available at [www.linkedin.com/in/gabriela-barceloss](www.linkedin.com/in/gabriela-barceloss)
 
-- 💬 Ask me about **ruby, ruby on rails, css, html**
-
 - 📫 How to reach me **gabriela-barcelos@uol.com.br**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1anpziKcPOjQxKks5CFHjYa8K0YQ96l0Q/view?usp=sharing](https://drive.google.com/file/d/1anpziKcPOjQxKks5CFHjYa8K0YQ96l0Q/view?usp=sharing)
