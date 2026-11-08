@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **gabriela-barcelos@uol.com.br**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1anpziKcPOjQxKks5CFHjYa8K0YQ96l0Q/view?usp=sharing](https://drive.google.com/file/d/1anpziKcPOjQxKks5CFHjYa8K0YQ96l0Q/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/18JXpfprmRL5k5MB2spXi2P-xS8KqxBT0/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
